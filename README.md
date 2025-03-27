@@ -1,2 +1,3 @@
 # SupriyaKamatagi.github.io
-Official profile in progress
+
+https://supriyaskamatagi5.wixsite.com/supriya
